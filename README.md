@@ -1,0 +1,2 @@
+Disclaimer
+KlikBan is neither affiliated or sponsored by companies whose logos and tire pictures are stored in this repositories, the logos belong to their respective copyright holders and are displayed solely for editorial and informational purposes.
